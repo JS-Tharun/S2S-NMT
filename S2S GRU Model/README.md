@@ -1,1 +1,0 @@
-# GAD-VAS-LiLe
